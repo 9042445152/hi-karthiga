@@ -1,2 +1,3 @@
 # hi-karthiga
-she is awesome
+she is worst to the core
+
